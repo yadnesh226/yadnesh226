@@ -13,7 +13,7 @@ Feel free to explore my repositories to see what I've been working on. I'm alway
 
 ## 📫 Contact Me
 
-If you have any questions or would like to collaborate on a project, you can reach me via email at aniruddha8999@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/yadnesh-khaple-10678b213/).
+If you have any questions or would like to collaborate on a project, you can reach me via email at yadneshkhaple226@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/yadnesh-khaple-10678b213/).
 
 Thank you for visiting my GitHub profile!
 
